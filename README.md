@@ -1,1 +1,2 @@
-# gobobydob.github.io
+juicekidd.github.io/funkin
+........
